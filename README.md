@@ -1,1 +1,1 @@
-# Help-piople
+# Help-people
